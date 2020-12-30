@@ -1,0 +1,2 @@
+# dezizi.github.io
+memo
